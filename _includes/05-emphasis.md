@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I like all the **awesome** things in the world. _Sunshine_ is cute and _mountains_ are lovable. :sparkles: :tada:
